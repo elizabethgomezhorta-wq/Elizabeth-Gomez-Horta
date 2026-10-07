@@ -14,4 +14,4 @@ My experience includes:
 I'm particularly interested in the intersection of marketing, technology, AI and creative strategy.
 
 📍 Madrid, Spain  
-🔗 [[LinkedIn](www.linkedin.com/in/elizabethgomezhorta)
+🔗 www.linkedin.com/in/elizabethgomezhorta
